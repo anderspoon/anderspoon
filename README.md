@@ -1,2 +1,2 @@
-a mincraft mod about ores i guess
+mincraft mods
 
