@@ -1,1 +1,2 @@
-im a really bad dev
+a mincraft mod about ores i guess
+
